@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Imcooooooool
+- 👀 I’m interested in Among us
+- 🌱 I’m currently learning how to code a discord bot
+- 💞️ I’m looking to collaborate on nothing
